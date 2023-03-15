@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-唯一QQ`1244653065`
+QQ`1244653065`
 <!--
 **Liuhaixv/Liuhaixv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
